@@ -1,1 +1,0 @@
-Portofolio Ady Ahmadi
